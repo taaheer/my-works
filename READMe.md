@@ -1,1 +1,5 @@
-write read me
+# My Works
+
+- [drafts](drafts/)
+- [plays](plays/)
+- [scripts](scripts/)
