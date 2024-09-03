@@ -14,13 +14,13 @@
 
 **Me:** "Actually you did called me but 2 months ago."
 
-**Casting director:** "What kind of transport mode you were travelling that took you 2 months to get here." *laughing* "Anyway can you tell me how did I called you here?"
+**Casting director:** "What kind of transport mode you were travelling that took you 2 months to get here?" *laughing* "Anyway can you tell me how did I called you here?"
 
 **Me:** "Yes, you message me through Linkedin." *showing him the Linkedin chat*
 
 **Casting director:** "Ahh, yes I did. Now tell me, what took you so long, why you came after 2 months?"
 
-**Me:** "I did came to address that time but couldn't gather enough courage and strength to step inside."
+**Me:** "I did came to address 2 months ago but couldn't gather enough courage and strength to step inside."
 
 **Casting director:** "So what cause today that you came here fearlessly."
 
@@ -44,11 +44,11 @@ That feeling, that sadness, that pressure will be enough make climb the Mount Ev
 
 **Me:** *Head down*
 
-**Casting director:** "Hey look I am not trying make you feel bad, I am saying what it is. You need to do better than that. You need to be better than this if you want to be cast."
+**Casting director:** "Hey look, I am not trying make you feel bad, I am saying what it is. You need to do better than that. You need to be better than this if you want to be cast."
 
 **Me:** *Silently listening while eyes are down*
 
-**Casting director:** *sigh* "Look you have potential, you did better than most. Coming here and facing camera itself is a win. With more guidance and practice, you will be prepared for this industry"
+**Casting director:** *sigh* "Look, you have potential, you did better than most. Coming here and facing camera itself is a win. With more guidance and practice, you will be prepared for this industry"
 
 **Me:** "I did try my best"
 
@@ -86,15 +86,15 @@ That feeling, that sadness, that pressure will be enough make climb the Mount Ev
 
 **Casting director:** "Because you only thought of 2 scenarios because you thought that you had two choices only. Just think about it, you could have just come, talk to us and leave, or come and just give audition and leave, or send someone else on your behalf, might have mail or whatsapp your profile. The more you think about it, more choices you will see and more outcome of that. I am not saying think of every scenario and become overwhelmed. My point that you have choices and each lead to different outcome, and that outcome is written by the your writer but decision that lead to that outcome if yours. if you had not come here and went home again, the outcome would be different. I hope you are understanding what I am saying."
 
-**Me:** "Yeah, I understand now. I don't have control over other's decisions but I do have control on mine, that can influence other's decision.  I can't change your decision over not casting me, but next time when I will give audition, by my performance I can influence your thought over choosing me."
+**Me:** "Yeah, I understand now. I don't have control over other's decisions but I do have control over mine, that how I can influence other's decision. I can't change your decision over not casting me, but next time when I will give audition, with my good performance I can influence your thought over choosing me."
 
-**Casting director:** "Exactly. Sorry that I can't cast with performance you gave next time do come prepared. and If you give great performance that, sure you will make seat for yourself in my upcoming projects."
+**Casting director:** "Exactly. Sorry that I can't cast with performance you gave, next time do come prepared. and If you give great performance next, surely you will make seat for yourself in my upcoming projects."
 
 **Me:** "Thank you so much for your guidance. I will practice and make sure to be prepare for my next audition, whether it be here or somewhere else." *Handshake with casting director*
 
 **Casting director:** *With smile* "Best of luck for you practice and audition. Hope we meet again."
 
-**Scene:** *Then left the office with desire to be better and with wisdom I was given*
+**Scene:** *Then leave the office with desire to be better and with wisdom I was given*
 
 **END**
 
