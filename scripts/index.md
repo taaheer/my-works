@@ -1,3 +1,3 @@
 # My Scripts
 
-- Why are you late? ([English](why-are-you-late/en.md))
+- [Why are you late?](why-are-you-late/en.md)
