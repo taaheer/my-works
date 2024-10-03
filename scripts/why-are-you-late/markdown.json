@@ -1,0 +1,23 @@
+{
+	"Scene": {
+		"prefix": "sce",
+		"body": [
+			"**Scene:** *$1*"
+		],
+		"description": "Scene"
+	},
+	"Me":{
+		"prefix": "me",
+		"body": [
+			"**Me:** \"$1\""
+		],
+		"description": "Me"
+	},	
+	"Teacher":{
+		"prefix": "te",
+		"body": [
+			"**Teacher:** \"$1\""
+		],
+		"description": "Teacher or as I call him director is the also an actor but also like to direct and make play for theatre. he was the first one to take me in his play when I was just starting and he guide me. So I gave him title of teacher because he was the starting point and like a teacher he guide me even though I still call him director."
+	}
+}
