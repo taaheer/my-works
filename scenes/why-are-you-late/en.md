@@ -180,6 +180,6 @@ LinkedIn: [https://linkedin.com/in/Taaheer-Labbe](https://github.com/Taaheer)
 Website: [https://Taaheer.github.io](https://Taaheer.github.io)
 
 **Notes:**  
-This script is an original work and is the property of Taaheer Labbe. Unauthorized reproduction or distribution is prohibited.
+This story is an original work and is the property of Taaheer Labbe. Unauthorized reproduction or distribution is prohibited.
 
 ---

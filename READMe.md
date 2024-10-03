@@ -1,8 +1,7 @@
 # My Works
 
-- [drafts](drafts/)
-- [plays](plays/)
-- [scripts](scripts/)
+- [Drafts](drafts/)
+- [Scenes](scenes/)
 
 ## Contact Me:  
 Taaheer Labbe  
