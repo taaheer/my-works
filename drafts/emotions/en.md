@@ -1,9 +1,10 @@
 # Emotions (English)
 
 - [Emotions (English)](#emotions-english)
-  - [Part one](#part-one)
+  - [E01 · Inner World](#e01--inner-world)
+  - [E02 · Self-Sabotage](#e02--self-sabotage)
 
-## Part one
+## E01 · Inner World
 **Scene:** *At night I am trying to write my story*
 
 **Me:** *Writing on paper* "I gotta make this story good" *After few minutes* "I hate this I couldn't think, I hate when I hate my own story" *Tearing the paper and throwing in bin* "I can't be writer, I can't even write a paragraph" *Get up go toward bed*
@@ -28,9 +29,9 @@
 
 **Me:** *More confused* "Me? but if you are me then who I am?"
 
-**Passion:** "Well, I am all you I am just part of you"
+**Passion:** "Well, I am not all of you I am just a part of you"
 
-**Me:** "Part me?" *Visibly more confused* "What you do mean? and what is this place?"
+**Me:** "A part me?" *Visibly more confused* "What you do mean? and what is this place?"
 
 **Passion:** "Oh boy, You got lost of question in your mind, well that's good, that mean you passionate!"
 
@@ -40,7 +41,7 @@
 
 **Me:** "Can you just tell me where I am and who are you that looking like me"
 
-**Passion:** *Sigh* "Ok ok claim down I will tell you. I am passion a part of you. I am your passion, that why I look like you because I am part of you and this place is your mind, your inner world, Thats why you feel this place as familiar."
+**Passion:** *Sigh* "Ok ok calm down I will tell you. I am passion a part of you. I am your passion, that why I look like you because I am part of you and this place is your mind, your inner world, That's why you feel this place as familiar."
 
 **Me:** "My mind? my inner world? So why it look beautiful but so many scattered pieces around here?"
 
@@ -78,11 +79,91 @@
 
 **Passion:** "Look, you gotta trust me, Everything will be alright, Just follow me" *touching head-to-head and then passion jump off*
 
-**Me:** *I was feeling scared but when he touch my head with his suddenly that fear turned into heartwarming trust and I jump off too*
+**Me:** *I was feeling scared but when he touch my head with his suddenly that fear turned into heart-warming trust and I jump off too*
 
-**End of part one**
+**End of Episode 1**
 
-**To be continue**
+## E02 · Self-Sabotage
+
+**Scene:** *They fall into the darkness and cliff started to disappear minute by minute until they could not see anything and then they fall into water.*
+
+**Me:** *When I was falling, I started to hollow and empty inside. It was so cold that I started feel not to do anything, I didn't even try to swim up and let myself drown, Until someone grab my hand and pull me out.*
+
+**Passion:** *He was drowning so I went to save him. I grabbed his hand and take him out. he wasn't doing anything, not even trying to save himself from drowning like he just got frozen.*
+
+**Scene:** *Passion took him out and place near the land. [me] was not moving, not even a bit.*
+
+**Passion:** *Frighten and scared* "Hey, response please. Please wake up. Don't leave me us alone like this."
+
+**Me:** *Cough and came back to consciousness*
+
+**Passion:** "Thank God your alive." *Hugged* "I thought I lost you. I thought you were dead.*
+
+**Me:** *Pushed him* "Because I am dead."
+
+**Passion:** "I don't think so. You are responding, breathing, blinking and talking. I think that are signs of being alive."
+
+**Me:** "Is that so?" *Frownly looking at him* "Just because I show some signs and behaviours, and said some stupid words, is that enough to say the person is alive?"
+
+**Passion:** *Worriedly looking at him* "What do you mean?"
+
+**Me:** *Laughing* "Isn't that funny, my own self doesn't understand me. Are you really part of me?"
+
+**Scene:** *For moment both don't say anything to each other.*
+
+**Passion:** "Come on, we have to move." *Extending my hand towards him*
+
+**Me:** *Slap out his hands* "NO, I don't wanna move. You should have just let me drown there." *Pointing at the water*
+
+**Passion:** "Why are you saying this?"
+
+**Me:** *With angrily voice* "Don't pretend like you care about me, I know you don't. You are just being selfish, just like everyone."
+
+**Passion:** "Even if I am being selfish, I am being for myself, and that mean you."
+
+**Scene:** *Suddenly a laugh is heard and someone appear behind [me]*
+
+**Saboteur:** "I really really doubt that."
+
+**Passion:** *Got surprised that quickly turn into anger* "Why are you here?"
+
+**Saboteur:**  "Oh really" *chuckle* "I should be the one to ask here. You are in my territory.
+
+**Passion:** "Your territory? You don't even belong here."
+
+**Saboteur:** *With Intimidating look* "I do belong here" *Looking at [me] with glowing eyes* "Ain't I?
+
+**Me:** "Yes, you do belong here. Asa  matter of fact, you are the only one I can trust."
+
+**Passion:** "You just trust him?" *Visible confused and frustrated* *You just met him, now you already trusting him, while I am trying to make you trust me but keep failing."
+
+**Me:** "He doesn't lie like you. He always tell truth even if it hurts. while you, only lies, you say nothing but lies."
+
+**Saboteur:** *Mischievous smile* "He saying correct, I am the ultimate truth, while you, just a ultimate liar.
+
+**Passion:** "How can you such things to me. I was there for you from start and..."
+
+**Saboteur:** "See, he was lying to you from start. Pretending to show care for you..."
+
+**Passion:** "Stop twisting my words."
+
+**Me:** "He is right, You are a traitor, betrayer and liar." *Walking toward Saboteur* "Thank you for showing me truth"
+
+**Passion:** *Push [me] aside and grabbed Saboteur by collar* "You need to be stop, RIGHT NOW"
+
+**Saboteur:** "Oh, you think you can take on me? Your such a delusional." *Free himself from his grab* "Come on, show me what you got"
+
+**Me:** "Kill the liar, finish him"
+
+**Saboteur:** "Oh, I will my dear. He is our common enemy."
+
+**Passion:** *To [me]* "I am not your enemy, trust me"
+
+**Saboteur:** "Are you just gonna talk or fight you passionately coward."
+
+**Scene:** *Both take their position and ready to fight while [me] watching from aside*
+
+**End of Episode 2**
 
 ---
 
