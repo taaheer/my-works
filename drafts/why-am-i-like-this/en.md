@@ -35,19 +35,19 @@ Let's start from start shall we. So you get better understanding what really has
 It was not a love rather paying back the favour or just a trying or I don't know what to name.
 
 ### Mom
-My mom is from small village in south and she is **illiterate** and already been to married to someone but things didn't go well and she just left him.
+My mom is from small village in south and she is **illiterate** and already been to married to someone before but things didn’t go well and she just left him.
 
 Since marriage was not legal there was no divorce as well, and it was village, what do you expect.
 
-She was living and working with her parents until her friend took her to capital city and she spend few months. she attempted to come back home all alone but due **illiteracy** she boarded into wrong train and that's where she met my father for first time.
+She was living and working with her parents and brothers until her friend took her to capital city and she spend few months. Then she attempted to come back home all alone but due illiteracy she boarded into wrong train and that’s where she met my father for first time.
 
 ### Father
 
-My father weren't quite young during marriage, he was in middle age at that time. He wasn't married before but he did try to get married but failed. Or maybe I don't have enough information because all I could find from him and relatives that he attempted to marry before but always fail and he always claimed to have "**mangala dosha**" ("**mars defect**") and called himself **Manglik** (Yes, my father believes in astrology).
+My father weren’t quite young during marriage, he was in middle age at that time. He wasn’t married before but he did try to get married but failed every time. Or maybe I don’t have enough information because all I could find from him and relatives that he attempted to marry before but always fail and he always claimed to have **“mangala dosha”** (**“mars defect”**) and called himself **Manglik** (Yes, my father believes in astrology, something I despise).
 
-During that time my father used to deliver critical ship part and just was returning from the delivery.
+During that time my father used to deliver critical ship parts and just was returning from the delivery from capital city.
+Luckily he boarded in same train that my mother mistook for her home and had seat near exactly where my mother was sitting.
 
-He boarded in same train that my mother mistook for her home and had seat where my mother was sitting.
 
 ## When both boarded on same train
 To keep things small and not make you bored, I will skip and fast-forward.
@@ -56,26 +56,25 @@ My father made my mother realized that she boarded wrong train but then he promi
 
 He made call to his **boss** asking for leaves (with lies of course). First he took her to his home where my mother met with my **uncle** (father's brother) **aunt** (father's brother's wife).
 
-Then they leave for my mother's village. Upon arrival my **grandma** (mom's mother) and **uncles** (mom's brothers) were happy and crying as they thought they lost her.
+Then they left for my mother’s village. Upon arrival my grandma (mom’s mother) and uncles (mom’s brothers) were happy and crying as they thought they lost her.
 
-Next day many **villagers** came to see my father as it was first time in their village that someone from city bring back a girl from their village safely as they only heard bad thing happening with village girls.
+Next day many villagers came to see my father as it was first time in their village that someone from city bring back a girl of their village safely as they only heard bad thing happening to village girls.
 
-My father came back after few months when my aunt (father's brother's wife) suggest him marry the woman he brought with few months ago.
+My father came back after few months when my aunt (father’s brother’s wife) suggest him marry the woman he brought with few months ago.
 
-He put that proposal in front of grandma (mom's mother) and everyone accepted it.
+He put that proposal in front of grandma (mom’s mother) and everyone accepted it.
 
 Both got married but they had different intentions behind marriage.
 
-My father married, thought that she is naive village girl and I saved her, she would be grateful and do everything I will say.
+My father married, thought that she is just a **naive**, **illiterate** **village girl** and I saved her, she would be grateful and do everything I will say.
 
-My mother married, thinking he just an old man who will die eventually or I leave left him after few months.
+My mother married, thinking he just an **old man** who will die eventually or I leave left him after few months after getting bored of him.
 
-And she would but she didn't because I was born.
-She didn't expect that she was pregnant and got to know that along with everyone.
+And she would but she didn’t because I was about to born. She didn’t expected that she was **pregnant** and got to know that along with everyone.
 
-Whenever she is **drunk** (yes, my mother is **alcoholic**) and had verbal fight with my father, she say to that she would have left but stopped because of me, she even said if she knew that she was pregnant before anyone else, she would **aborted me** secretly.
+Whenever she is drunk (yes, my mother is **alcoholic**) and had verbal fight with my father, she would say to me that she would have left but stopped because of me, she even said if she knew that she was pregnant before anyone else, she would aborted me secretly.
 
-Now you tell me, is this love marriage? Because I don't think so yet I claim because that's easy it is than explaining this monstrosity.
+Now you tell me, is this **love marriage**? Because I don’t think so yet I claim because that’s easy to say than explaining this **monstrosity**.
 
 ## Birth
 You probably don't remember your own birth (I hope you don't otherwise you would be divine) and neither do I. But your parents, relatives must have told you stories what really has happened. They must have told you everyone was happy, each of your family members hold you one by one and might kiss your forehead, introduce themselves to you even you are not in state of understanding anything.
@@ -149,6 +148,7 @@ I had friends before I was put in first grade, in fact some of my friends also g
 We used to play together but since school they treated me like they don't even know me. They avoided me like something was wrong with me. whenever I approach them to play, they pushed me away like I was kid among the group of big people. That's when I felt being outcasted for the first time and probably deceptions and betrayals as well.
 
 I had no friends because I was being outcasted, they always made me feel like I am not from their league and that's when I started learn to live alone.
+
 
 ## 10 years to 15 years
 I was going towards teenage years and you might thinking things would have changed, it would be better but it was not.
@@ -233,7 +233,7 @@ I met a girl in the community, I don't know why but I felt good around her, I fe
 
 I tried to approach her and express my feelings to be friend with her but she mistook my feelings for love and rejected me for something I never asked.
 
-I might be crazy, stupid, even broken but I am not obsessed person. I wouldn't even dare to purpose something whom I met few days ago. I still don't know why she thought that, maybe I will never know because I messed up everything.
+I might be crazy, stupid, even broken but I am not obsessed person. I wouldn't even dare to purpose someone whom I met few days ago. I still don't know why she thought that, maybe I will never know because I messed up everything and she has blocked me.
 
 ---
 © 2024 Taaheer Labbe. All rights reserved.
