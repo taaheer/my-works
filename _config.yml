@@ -1,0 +1,4 @@
+kramdown:
+  input: GFM
+  html_to_native: true
+  parse_block_html: true
