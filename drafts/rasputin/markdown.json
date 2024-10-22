@@ -1,0 +1,30 @@
+{
+	"Scene": {
+		"prefix": "sce",
+		"body": [
+			"**Scene:** *$1*"
+		],
+		"description": "Scene"
+	},
+	"Me":{
+		"prefix": "me",
+		"body": [
+			"**Me:** \"$1\""
+		],
+		"description": "Me"
+	},	
+	"Passion":{
+		"prefix": "pa",
+		"body": [
+			"**Passion:** \"$1\""
+		],
+		"description": "Passion"
+	},
+	"Saboteur":{
+		"prefix": "sa",
+		"body": [
+			"**Saboteur:** \"$1\""
+		],
+		"description": "Saboteur "
+	}
+}
