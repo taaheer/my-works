@@ -29,29 +29,29 @@
 
   <div style="text-align: center">
   UK SOLDIER 1
-  
+
   Sir, Everything is clear.
 
   INDIAN SOLDIER 1
 
-  We have check all the parameters and everything seems working fine. You can proceed.
+  We have checked all the parameters and everything seems to be working fine. You can proceed.
   </div>
 
   </li>
   <li>
 
   ### INT. INTERNATIONAL MUSEUM SPACE STATION'S KOHINOOR DISPLAY ROOM - CONTINUES 
-  Diplomates with presence of other diplomates from UK and India, and military from both country.
+  Diplomates with presence of other diplomates from UK and India, and military from both countries.
 
-  The mysterious box is being place on high tech and advanced pedestal. each Diplomates giving their eye scan and fingerprint into that mysterious box. 
+  The mysterious box is being placed on a high-tech and advanced pedestal. Each diplomat gives their eye scan and fingerprint into that mysterious box. 
 
-  Then Military General from UK and India coming toward the box and giving their biometrics and pressing the lighted button.
+  Then Military General from UK and India come toward the box and give their biometrics and press the lighted button.
 
-  The mysterious box open up and Imperial State Crown with Kohinoor on it is rising up.
+  The mysterious box opens up and the Imperial State Crown with Kohinoor on it rises up.
 
-  Solider take away shell box and everyone in claps and handshake.
+  Soldiers take away the shell box and everyone claps and shakes hands.
 
-  Kohinoor on crown shinning at it brightest.
+  Kohinoor on crown shining at its brightest.
 
   <div style="text-align: right">CUT TO:</div>
   
@@ -59,14 +59,14 @@
   <li>
 
   ### INT. DELHI UNIVERSITY - HISTORY CLASSROOM - MORNING
-  Hologram of crown showing to whole classroom and Professor saying.
+  Hologram of crown showing to the whole classroom and Professor says.
   <div style="text-align: center">
   PROFESSOR SEBASTIAN
 
   The Kohinoor was a subject of diplomatic controversy, with India, Pakistan, Iran, and Afghanistan all demanding its return from the UK at various points.
   </div>
 
-  At very last bench, Govind is sleeping and having dream of fighting terrorist in classroom.
+  At the very last bench, Govind is sleeping and dreaming of fighting terrorists in the classroom.
   </li>
   <li>
   
@@ -77,12 +77,12 @@
   HA, HA, HA, Today we will become history and our stories will go through centuries.
 
   </div>
-  SEBASTIAN take out his gun around everyone and ask
+  SEBASTIAN takes out his gun around everyone and asks
 
   <div style="text-align: center">
   TERRORIST SEBASTIAN
 
-  Who want to part of history first? The kill of my name?
+  Who wants to be part of history first? The kill of my name?
   </div>
   
   <div style="text-align: center">
@@ -94,22 +94,21 @@
   <div style="text-align: center">
   TERRORIST SEBASTIAN
 
-  Who said that?
-  What you, you? or you?
+  Who said that? What you, you? or you?
   </div>
   Aiming his gun at different students.
 
   <div style="text-align: center">
   Govind (O.S)
   
-  Its me
+  It's me.
   </div>
-  Jump front of SEBASTIAN.
+  Jumps in front of SEBASTIAN.
 
   <div style="text-align: center">
   TERRORIST SEBASTIAN
 
-  Oh, Govind! You think you can defeat me and save everyone? in your Dreams.
+  Oh, Govind! You think you can defeat me and save everyone? In your dreams.
 
   </div>
   <div style="text-align: right">CUT TO:</div>
@@ -120,14 +119,14 @@
   <div style="text-align: center">
   PROFESSOR SEBASTIAN
 
-  2016 Uri attack was carried out on 18 September 2016 by four Jaish-e-Mohammed terrorists from Pakistan against an Indian Army...
+  The 2016 Uri attack was carried out on 18 September 2016 by four Jaish-e-Mohammed terrorists from Pakistan against an Indian Army...
   </div>
-  Noticed that GOVIND is sleeping.
+  Noticing that GOVIND is sleeping.
 
   <div style="text-align: center">
   PROFESSOR SEBASTIAN (As a hologram)
 
-  2016 Uri attack was carried out on 18 September 2016 by four Jaish-e-Mohammed terrorists from Pakistan against an Indian Army...
+  The 2016 Uri attack was carried out on 18 September 2016 by four Jaish-e-Mohammed terrorists from Pakistan against an Indian Army...
   </div>
 
   <div style="text-align: center">
@@ -135,49 +134,49 @@
 
   Govind? Govind!
   </div>
-  Change hologram to himself.
+  Changes hologram to himself.
   <div style="text-align: center">
   PROFESSOR SEBASTIAN (As a hologram)
 
   GOOOVIIIND WAAKEE UPPP.
   </div>
 
-  GOVIND wakes up and say.
+  GOVIND wakes up and says.
   <div style="text-align: center">
   GOVIND
 
-  Oh, You think you can fool me with your hologram.
+  Oh, You think you can fool me with your hologram?
   </div>
-  GOVIND charging toward his PROFESSOR
+  GOVIND charges toward his PROFESSOR.
 
   <div style="text-align: center">
   PROFESSOR SEBASTIAN
 
   Govind NO. Have you lost...
   </div>
-  GOVIND tackled PROFESSOR to the wall and take him down.
+  GOVIND tackles the PROFESSOR to the wall and takes him down.
 
-  GOVIND proudly standing up.
+  GOVIND proudly stands up.
   <div style="text-align: center">
   GOVIND
 
-  Don't worry friends, I have taken care of terrorist, you are safe now.
+  Don't worry friends, I have taken care of the terrorist, you are safe now.
   </div>
   <div style="text-align: center">
   ANMOL
 
   Aye Bro, what are you saying?
   </div>
-  GOVIND got confused?
+  GOVIND looks confused.
   <div style="text-align: center">
   SHRAVANI
 
-  Professor was just teaching us about terrorist, he did not said he was the terrorist. 
+  The Professor was just teaching us about terrorists, he did not say he was the terrorist.
   </div>
   <div style="text-align: center">
   GOVIND
 
-  What you guys are saying, didn't he bought a gun was aiming at everyone saying he will turn everyone into history?
+  What are you guys saying? Didn't he pull out a gun and aim it at everyone saying he would turn everyone into history?
   </div>
   <div style="text-align: center">
   EVERYONE
@@ -189,17 +188,18 @@
 
   Yo bro, you are finished unlike my highly advanced unlimited non-toxic cigarette.
   </div>
-  ANMOL taking a puff from his highly advanced unlimited non-toxic cigarette
+  ANMOL takes a puff from his highly advanced unlimited non-toxic cigarette.
   </li>
 </ol>
 </div>
 
 ---
+
 © 2024 Taaheer Labbe. All rights reserved.
 
 **Title:** *International Museum Space Station*  
 **Draft Start Date:** 7 October 2024  
-**Draft Complete Date** *[To Be Determined]*
+**Draft Complete Date:** *[To Be Determined]*
 
 **Contact Information:**  
 Taaheer Labbe  
