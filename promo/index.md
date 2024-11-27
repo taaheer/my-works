@@ -1,4 +1,4 @@
-# My Scripts and Screenplay
+# My Promo Screenplay and Script
 
 - [Drafts](drafts/)
 - [Scenes](scenes/)
